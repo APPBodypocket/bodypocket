@@ -1,0 +1,1 @@
+Descargando la aplicación, aceptas nuestra política de Privacidad.
